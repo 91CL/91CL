@@ -22,7 +22,7 @@
 | 旋风加速器 | ![](https://www.privacypic.com/images/2019/11/18/f56a5f1081defb1daac6ea7fa5cace6a7a0bc50f9dba2f3b.jpg) | ![](https://www.privacypic.com/images/2019/11/18/iosa97ea2bee03946dd.jpg) |      |        |
 |  更多VPN   |                        请拉到最后↓↓↓                         |                     不过，这个旋风加速器                     | 真的 | 良心！ |
 
-#### 热门社区（表格向左滑动可以查看更多）
+#### 热门社区（表格向左滑动查看更多）
 
 ------
 
