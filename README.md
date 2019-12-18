@@ -19,8 +19,7 @@
 [点击进入👉91CL社區丨福利网站导航]( https://github.com/91CL/91CL-Nav/blob/master/README.md )
 
 [点击进入👉91CL社區丨科学上网导航]( https://github.com/91CL/91CL-VPN/blob/master/README.md )
-
-福利APP正在整理中，敬请期待！
+[点击进入👉91CL社區丨福利APP分享]( https://github.com/91CL/91CL-APP/blob/master/README.md )
 
 #### 联系我们
 
